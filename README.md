@@ -1,3 +1,5 @@
+
+
 " ɢᴏᴏᴅ ʟᴜᴄᴋ, ʙᴀʙᴇ! " ( ˶˘ ³˘(ˊᗜˋ*)!♡ 
 
 <img src="https://pbs.twimg.com/media/HCVTOjmasAAvlmN.jpg" alt="Free scene noob banner for discord, pink! #banner #scenenoob #forsaken  #forsakenscenenoob #pink #pinkdiscordbanner  #pinkscenenoobforsakendiscordbanner"/> .°⑅
