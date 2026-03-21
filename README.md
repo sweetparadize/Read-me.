@@ -35,3 +35,5 @@ usually in cosplays or my ocs. Im seen with my trusted oomfs around the freak ci
 DNI ( ` ᴖ ´ ) : under 12 + over 20 (this isnt really a dni more of a thin ice , if interacted please do so with care.) , homophobic , transphobic , racist , pedos ; pro/dark/comshippers , support problematic creators/content , people who make their whole personality abt their mental disorder , mappride ppl (ew) , people who break boundaries for no reason . 
 
 <img src="https://i.redd.it/since-i-couldnt-find-any-posts-showing-all-of-the-selfies-v0-4ozyjthuj9i81.jpg?width=596&amp;format=pjpg&amp;auto=webp&amp;s=2c1ab40f6e1734332aa31e8d759e15e87b8968c5" alt="Since I couldn&#39;t find any posts showing all of the selfies I&#39;m deciding to  put the ones I found here : r/NeedyStreamerOverload"/> .°⑅ 
+
+-- shoutout to my awesome oomfs : rue , vincent , bucky , mal and dragon ! (˶ᵔ ᵕ ᵔ˶) 
