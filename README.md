@@ -14,7 +14,7 @@ call me : Ritzy , ritz , or columbina! ♡
   
   (..◜ᴗ◝..) . . . multifandom!
          
-   -- do not cover me fully UNLESS you are a close friend of mine ( ˊᵕˋ )
+   -- c+h is not always enc (will be stated when not) this is moslty if i am upset or either tired or just busy, c+h is moslty enc and will be stated also, mostly when im in a good mood . any c+h is fine just please do not fully cover my pony UNLESS you are a close friend! ( ˊᵕˋ )
    
  °⑅
  
