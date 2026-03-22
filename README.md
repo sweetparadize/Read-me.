@@ -2,7 +2,9 @@
 
 " ɢᴏᴏᴅ ʟᴜᴄᴋ, ʙᴀʙᴇ! " ( ˶˘ ³˘(ˊᗜˋ*)!♡ 
 
-<img src="https://pbs.twimg.com/media/HCVTOjmasAAvlmN.jpg" alt="Free scene noob banner for discord, pink! #banner #scenenoob #forsaken  #forsakenscenenoob #pink #pinkdiscordbanner  #pinkscenenoobforsakendiscordbanner"/> .°⑅
+<img src="https://64.media.tumblr.com/ffd6e06560c4a70ff6bb206c486a2893/ed86d27d707732c0-17/s540x810/980126e1bc26a70cb07ba700ce714c101e39036a.gifv" alt="Eternal Sugar Cookie (with Hollyberry) gifs – @cookierungames on Tumblr"/>
+°⑅
+
 
 call me : Ritzy , ritz , or columbina! ♡
 ( any prns . . . sixteen ! (,,>ヮ<,,) 
@@ -22,7 +24,7 @@ call me : Ritzy , ritz , or columbina! ♡
 
 usually in cosplays or my ocs. Im seen with my trusted oomfs around the freak circus area , project moon area or sometimes (rarely) in the bakery. Please note that i am sometimes offtab or busy . W2i is heavily recomended but chances are you will get a late response from me , sorry ( ;´ - `;) . . . . 
 
-<img src="https://i.pinimg.com/474x/93/7f/fd/937ffd901006efc3cd0e21163eba6f73.jpg" alt="Discord Banners Pink"/>
+<img src="https://64.media.tumblr.com/21bb40c691e6f7ab18da0e4f9950b27c/ed86d27d707732c0-e9/s540x810/05ec2e6ebb85240b7689149bce234116bd318b9f.gifv" alt="Eternal Sugar Cookie (with Hollyberry) gifs – @cookierungames on Tumblr"/>
 
 °⑅
 
@@ -36,6 +38,6 @@ usually in cosplays or my ocs. Im seen with my trusted oomfs around the freak ci
  
 DNI ( ` ᴖ ´ ) : under 12 + over 20 (this isnt really a dni more of a thin ice , if interacted please do so with care.) , homophobic , transphobic , racist , pedos ; pro/dark/comshippers , support problematic creators/content , people who make their whole personality abt their mental disorder , mappride ppl (ew) , people who break boundaries for no reason . 
 
-<img src="https://i.redd.it/since-i-couldnt-find-any-posts-showing-all-of-the-selfies-v0-4ozyjthuj9i81.jpg?width=596&amp;format=pjpg&amp;auto=webp&amp;s=2c1ab40f6e1734332aa31e8d759e15e87b8968c5" alt="Since I couldn&#39;t find any posts showing all of the selfies I&#39;m deciding to  put the ones I found here : r/NeedyStreamerOverload"/> .°⑅ 
+<img src="https://64.media.tumblr.com/957dfeb6dcbad5af0ba60b67f42104ef/ed86d27d707732c0-c0/s540x810/2931bd94eca41621134e41c0307b1ab6898841e2.gifv" alt="Eternal Sugar Cookie (with Hollyberry) gifs – @cookierungames on Tumblr"/>.°⑅ 
 
 -- shoutout to my awesome oomfs : rue , vincent , bucky , mal and dragon ! (˶ᵔ ᵕ ᵔ˶) 
