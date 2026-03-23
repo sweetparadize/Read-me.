@@ -28,7 +28,7 @@ usually in cosplays or my ocs. Im seen with my trusted oomfs around the freak ci
 
 °⑅
 
--- Absolutely horrible at talking to people i dont know and mostly will be dry . Do not flirt with me if you dont know me even if its a joke, im firm about my boundaries and my friends and breaking them will result in you getting blocked or hidden.  "( – ⌓ – )
+-- Absolutely horrible at talking to people i dont know and mostly will be dry . Do not flirt with me if you dont know me even if its a joke, im firm about my boundaries and my friends and breaking them will result in you getting blocked or hidden.  "( – ⌓ – ) <img src="https://private-user-images.githubusercontent.com/208310695/559869880-7ed7a0e3-ae1e-4128-afb7-87212b0d4621.png?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3NzQyNDA1MzYsIm5iZiI6MTc3NDI0MDIzNiwicGF0aCI6Ii8yMDgzMTA2OTUvNTU5ODY5ODgwLTdlZDdhMGUzLWFlMWUtNDEyOC1hZmI3LTg3MjEyYjBkNDYyMS5wbmc_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjYwMzIzJTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI2MDMyM1QwNDMwMzZaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT1kYzhkZmQ3MWUwOWEwMDRhZjljOWI2ZGJiMTY1ZDU0Y2VmZWI3M2RjMWY5YzU0ZGU5MWQ5N2UzZjk0ODY4NDcwJlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCJ9.GXpXse9czH0d8I4xiEu1lDM4f5ZCnbgfA6m4jl6YpXI" alt="tumblr_e8c3fcb9c9d005fe3108d3107774da55_944636d6_100"/>
 
  °⑅ 
  
