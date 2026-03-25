@@ -41,7 +41,7 @@ usually in cosplays or my ocs. Im seen with my trusted oomfs around the freak ci
  <img src="https://i.gifer.com/embedded/download/PZg9.gif" alt="Funny Gifs : flowers Gif - VSGIF.com"/><img width="75" height="159" alt="image" src="https://github.com/user-attachments/assets/068e3547-9b73-4225-beb5-a611b9231173" />
  
  
-DNI ( ` ᴖ ´ ) : under 12 + over 20 (this isnt really a dni more of a thin ice , if interacted please do so with care.) , homophobic , transphobic , racist , pedos ; pro/dark/comshippers , support problematic creators/content , people who make their whole personality abt their mental disorder , mappride ppl (ew) , people who break boundaries for no reason . 
+DNI ( ` ᴖ ´ ) : under 12 + over 20 (this isnt really a dni more of a thin ice , if interacted please do so with care.) , homophobic , transphobic , racist , pedos ; pro/dark/comshippers , support problematic creators/content , people who make their whole personality abt their mental disorder , mappride ppl (ew) , people who break boundaries for no reason and real life gore enjoyers.
 
 <img src="https://64.media.tumblr.com/957dfeb6dcbad5af0ba60b67f42104ef/ed86d27d707732c0-c0/s540x810/2931bd94eca41621134e41c0307b1ab6898841e2.gifv" alt="Eternal Sugar Cookie (with Hollyberry) gifs – @cookierungames on Tumblr"/>.°⑅ 
 
