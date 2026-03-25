@@ -34,7 +34,7 @@ usually in cosplays or my ocs. Im seen with my trusted oomfs around the freak ci
 
  °⑅ 
  
- BYI (╥_╥) :  I tell kms/kys jokes , swear ( sometimes ) , have mood swings , Mentally ill/srs ,  Minor . under 18 , get defensive easily if made uncomfortable. 
+ BYI (╥_╥) :  I tell kms/kys jokes , swear ( sometimes ) , have mood swings , Mentally ill/srs ,  Minor . under 18 , get defensive easily if made uncomfortable. IMPORTANT : some of the media i like contains dark content, however I do not condone, excuse, or support any of these behaviors in reality.
  
  °⑅
  
